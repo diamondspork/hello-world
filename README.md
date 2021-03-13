@@ -2,6 +2,4 @@
 This is my first repository on Github!
 
 Hello, 
-Your mom
-
-
+Your mom, Bruh moment.
